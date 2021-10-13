@@ -1,2 +1,2 @@
 # MicrosoftPowertoys
-Get MICROSOFT Powertoys
+Get MICROSOFT Powertoys for free
